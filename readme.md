@@ -12,6 +12,6 @@ Here is how its work:
 
 ![Image](https://user-images.githubusercontent.com/130282357/230766402-47dca318-cd01-481a-8e09-7998e61711c0.png)
 
-**If you want to use our services please contact us via Telegram: t.me/DorB111**
+**If you want to use our services please contact us via Telegram: https://t.me/DorB111**
 
 **The prices are determine by the destination you want to apply it on. The pay will be by credit card or PayPal by monthly invoice**
